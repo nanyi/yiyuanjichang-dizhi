@@ -1,6 +1,6 @@
 # 一元机场
 
-官网：[https://一元.com](hhttps://xn--4gq62f.com/#/register?code=vT4iWue7)
+官网：[https://一元.com](https://一元.com/#/register?code=vT4iWue7)
 
 邀请码：vT4iWue7
 
